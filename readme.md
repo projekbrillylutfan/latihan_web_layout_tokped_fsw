@@ -1,0 +1,1 @@
+latihan slicing web navbar tokped 
